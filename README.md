@@ -17,7 +17,7 @@
 - Web or mobile app development projects
 
 ## 📫 How to reach me
-- Email: [mhmmdsalic@gmail.com](mailto:mhmmdsalic@gmail.com)
+- Email: [mhmmdsalick@gmail.com](mailto:mhmmdsalick@gmail.com)
 - LinkedIn: [linkedin.com/in/mohammedsalick](https://www.linkedin.com/in/mohammed-salick-m-a-211990282?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 ## 😄 Pronouns
